@@ -16,8 +16,8 @@ GPA: 3.88
 _______________________________________________________________________________________
 **WORK EXPERIENCE**
 
-**DaDa ABC**          										                                                                                     
-**Boston, MA**  
+**DaDa ABC, Online English Teacher**  
+**Boston, MA**   
 September 2017-ongoing  
    * Teach Chinese kids aged 4 to 16 English online in a one-on-one setting
    * Encourage children to enjoy learning English through the use of fun games, songs, and poems
@@ -30,7 +30,7 @@ February-June 2017
   * Organized and enforced English-only time for Chinese colleagues 
   * Regularly taught Chinese colleagues colloquial English in an informal setting
 
-**The Red Oak After School Program**   	  						                                                                      
+**The Red Oak After School Program, Intern**   	  						                                                                      
 **Boston, MA**    
 Spring 2016
   * Helped academically struggling middle school students with (Mandarin and math) homework 
