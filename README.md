@@ -16,13 +16,13 @@ GPA: 3.88
 _______________________________________________________________________________________
 **WORK EXPERIENCE**
 
-**DaDa ABC, Online English Teacher**  
+_**DaDa ABC, Online English Teacher**_  
 **Boston, MA**   
 September 2017-ongoing  
    * Teach Chinese kids aged 4 to 16 English online in a one-on-one setting
    * Encourage children to enjoy learning English through the use of fun games, songs, and poems
 
-**Ameson Year in China, English teacher (Pan’an Experimental Primary School)**                                              
+_**Ameson Year in China, English teacher (Pan’an Experimental Primary School)**_                                              
 **Jinhua, China**    
 February-June 2017
   * Taught English to Chinese students in third to sixth grade, with a focus on improving oral English
@@ -30,13 +30,13 @@ February-June 2017
   * Organized and enforced English-only time for Chinese colleagues 
   * Regularly taught Chinese colleagues colloquial English in an informal setting
 
-**The Red Oak After School Program, Intern**   	  						                                                                      
+_**The Red Oak After School Program, Intern**_   	  						                                                                      
 **Boston, MA**    
 Spring 2016
   * Helped academically struggling middle school students with (Mandarin and math) homework 
   * Successfully kept order through homework time and engaged students’ interest during free time
 
-**Simmons College, Peer Tutor (Chinese and Philosophy)**  		  		                                                        
+_**Simmons College, Peer Tutor (Chinese and Philosophy)**_  		  		                                                        
 **Boston, MA**    
 Fall 2014-5
   * Practiced oral Chinese with fellow students and explained grammar patterns 
@@ -49,18 +49,18 @@ ________________________________________________________________________________
 _______________________________________________________________________________________
 **HONORS & AWARDS**  
 
-SPRING 2016    
+_**SPRING 2016**_    
   * **East Asian Studies Book Award** (awarded to best student in East Asian Studies Department)
   
-SPRING 2015    
+**_SPRING 2015_**    
   * **Benjamin A. Gilman International Scholarship** (highly competitive national scholarship)
   
-Fall 2012- SPRING 2016    
+**_Fall 2012 - SPRING 2016_**    
   * **Dean’s List**
 _______________________________________________________________________________________
 **ACTIVITIES**
 
-**Simmons College Global Ambassador**    							                                                                         
+_**Simmons College Global Ambassador**_    							                                                                         
 **Boston, MA**   
 Fall 2015
   * Promoted study abroad by holding office hours where I discussed my experience abroad
