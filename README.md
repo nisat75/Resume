@@ -22,8 +22,7 @@ September 2017-ongoing  * Teach Chinese kids aged 4 to 16 English online in a on
 
 **Ameson Year in China, English teacher (Pan’an Experimental Primary School)**                                              
 **Jinhua, China**    
-February-June 2017								      	                                                                         
-  * Taught English to Chinese students in third to sixth grade, with a focus on improving oral English
+February-June 2017  * Taught English to Chinese students in third to sixth grade, with a focus on improving oral English
   * Gave biweekly mini-lectures on American culture to the entire school
   * Organized and enforced English-only time for Chinese colleagues 
   * Regularly taught Chinese colleagues colloquial English in an informal setting
@@ -53,7 +52,7 @@ SPRING 2016
 SPRING 2015    
   * Benjamin A. Gilman International Scholarship (highly competitive national scholarship)
   
-Fall 2012-2016    
+Fall 2012- SPRING 2016    
   * Dean’s List
 _______________________________________________________________________________________
 **ACTIVITIES**
