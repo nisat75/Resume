@@ -1,4 +1,4 @@
-**NISAT CHOWDHURY**                                                                                                    
+_**NISAT CHOWDHURY**_                                                                                                    
 118 Arlington Street Brighton, MA 02135  
 nisat.chowdhury@outlook.com  
 _______________________________________________________________________________________                                    
@@ -50,13 +50,13 @@ ________________________________________________________________________________
 **HONORS & AWARDS**  
 
 SPRING 2016    
-  * East Asian Studies Book Award (awarded to best student in East Asian Studies Department)
+  * **East Asian Studies Book Award** (awarded to best student in East Asian Studies Department)
   
 SPRING 2015    
-  * Benjamin A. Gilman International Scholarship (highly competitive national scholarship)
+  * **Benjamin A. Gilman International Scholarship** (highly competitive national scholarship)
   
 Fall 2012- SPRING 2016    
-  * Dean’s List
+  * **Dean’s List**
 _______________________________________________________________________________________
 **ACTIVITIES**
 
