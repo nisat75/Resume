@@ -1,4 +1,4 @@
-NISAT CHOWDHURY                                                                                                     
+###**NISAT CHOWDHURY**                                                                                                     
 118 Arlington Street Brighton, MA 02135  
 nisat.chowdhury@outlook.com  
 _______________________________________________________________________________________                                    
@@ -12,7 +12,7 @@ GPA: 3.88
 **_Study Abroad, Spring 2015_**  
 **East China Normal University**          							                                                                      
 **Shanghai, China**    
-   * Provided disaster relief to Sichuan Earthquake victims during Spring Break by volunteer teaching elementary students English
+   * Provided disaster relief to Sichuan Earthquake victims during Spring Break by volunteer teaching English
 _______________________________________________________________________________________
 **WORK EXPERIENCE**
 
@@ -49,12 +49,12 @@ ________________________________________________________________________________
 _______________________________________________________________________________________
 **HONORS & AWARDS**  
 
-SPRING 2016  
-  * East Asian Studies Book Award (awarded to best student in East Asian Studies Department)  
-SPRING 2015  
+SPRING 2016    
+  * East Asian Studies Book Award (awarded to best student in East Asian Studies Department)    
+SPRING 2015    
   * Benjamin A. Gilman International Scholarship (highly competitive national scholarship)  
-Spring 2016  
-  * Dean’s List: Fall 2012 
+Fall 2012-2016    
+  * Dean’s List
 _______________________________________________________________________________________
 **ACTIVITIES**
 
