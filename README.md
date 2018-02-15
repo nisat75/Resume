@@ -11,8 +11,8 @@ GPA: 3.88
 
 **_Study Abroad, Spring 2015_**  
 **East China Normal University**          							                                                                      
-**Shanghai, China**  
-    * Provided disaster relief to Sichuan Earthquake victims during Spring Break by volunteer teaching elementary students English and reconstructing destroyed property
+**Shanghai, China**    
+   * Provided disaster relief to Sichuan Earthquake victims during Spring Break by volunteer teaching elementary students English
 _______________________________________________________________________________________
 **WORK EXPERIENCE**
 
@@ -47,10 +47,14 @@ ________________________________________________________________________________
   * Computer: Comfortable with Microsoft Office and Google Docs, Beginner in Python and Markdown
   * Social media: Facebook, Google plus, Tumblr, Wordpress
 _______________________________________________________________________________________
-**HONORS & AWARDS**
-  * East Asian Studies Book Award (awarded to best student in East Asian Studies Department) - Spring 2016
-  * Benjamin A. Gilman International Scholarship (highly competitive national scholarship) - Spring 2015
-  * Dean’s List: Fall 2012 - Spring 2016
+**HONORS & AWARDS**  
+
+SPRING 2016  
+  * East Asian Studies Book Award (awarded to best student in East Asian Studies Department)  
+SPRING 2015  
+  * Benjamin A. Gilman International Scholarship (highly competitive national scholarship)  
+Spring 2016  
+  * Dean’s List: Fall 2012 
 _______________________________________________________________________________________
 **ACTIVITIES**
 
