@@ -11,13 +11,13 @@ GPA: 3.88
 
 **_Study Abroad, Spring 2015_**  
 **East China Normal University**          							                                                                      
-**Shanghai, China**
+**Shanghai, China**  
     * Provided disaster relief to Sichuan Earthquake victims during Spring Break by volunteer teaching elementary students English and reconstructing destroyed property
 _______________________________________________________________________________________
 **WORK EXPERIENCE**
 
 **DaDa ABC**          										                                                                                     
-**Boston, MA**
+**Boston, MA**  
 September 2017-ongoing
    * Teach Chinese kids aged 4 to 16 English online in a one-on-one setting
    * Encourage children to enjoy learning English through the use of fun games, songs, and poems
@@ -55,6 +55,6 @@ ________________________________________________________________________________
 **ACTIVITIES**
 
 **Simmons College Global Ambassador**    							                                                                         
-**Boston, MA** 
+**Boston, MA**   
 Fall 2015
   * Promoted study abroad by holding office hours where I discussed my experience abroad
