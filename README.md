@@ -11,13 +11,15 @@ GPA: 3.88
 
 **_Study Abroad, Spring 2015_**  
 **East China Normal University**          							                                                                      
-**Shanghai, China**  * Volunteered to teach English to Sichuan Earthquake victims during Spring Break 
+**Shanghai, China**  
+   * Volunteered to teach English to Sichuan Earthquake victims during Spring Break 
 _______________________________________________________________________________________
 **WORK EXPERIENCE**
 
 **DaDa ABC**          										                                                                                     
 **Boston, MA**  
-September 2017-ongoing  * Teach Chinese kids aged 4 to 16 English online in a one-on-one setting
+September 2017-ongoing  
+   * Teach Chinese kids aged 4 to 16 English online in a one-on-one setting
    * Encourage children to enjoy learning English through the use of fun games, songs, and poems
 
 **Ameson Year in China, English teacher (Pan’an Experimental Primary School)**                                              
@@ -47,11 +49,9 @@ ________________________________________________________________________________
 **HONORS & AWARDS**  
 
 SPRING 2016    
-  * East Asian Studies Book Award (awarded to best student in East Asian Studies Department)
-  
+  * East Asian Studies Book Award (awarded to best student in East Asian Studies Department)    
 SPRING 2015    
-  * Benjamin A. Gilman International Scholarship (highly competitive national scholarship)
-  
+  * Benjamin A. Gilman International Scholarship (highly competitive national scholarship)    
 Fall 2012- SPRING 2016    
   * Dean’s List
 _______________________________________________________________________________________
