@@ -1,4 +1,4 @@
-**###NISAT CHOWDHURY**                                                                                                    
+**NISAT CHOWDHURY**                                                                                                    
 118 Arlington Street Brighton, MA 02135  
 nisat.chowdhury@outlook.com  
 _______________________________________________________________________________________                                    
@@ -24,7 +24,8 @@ September 2017-ongoing
 
 **Ameson Year in China, English teacher (Pan’an Experimental Primary School)**                                              
 **Jinhua, China**    
-February-June 2017  * Taught English to Chinese students in third to sixth grade, with a focus on improving oral English
+February-June 2017
+  * Taught English to Chinese students in third to sixth grade, with a focus on improving oral English
   * Gave biweekly mini-lectures on American culture to the entire school
   * Organized and enforced English-only time for Chinese colleagues 
   * Regularly taught Chinese colleagues colloquial English in an informal setting
