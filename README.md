@@ -19,13 +19,13 @@ ________________________________________________________________________________
 _**DaDa ABC, Online English Teacher**_  
 **Boston, MA**   
 September 2017-ongoing  
-   * Teach Chinese kids aged 4 to 16 English online in a one-on-one setting
-   * Encourage children to enjoy learning English through the use of fun games, songs, and poems
+   * Get kids in Shanghai - aged 4 to 16 - comfortable speaking English in one-on-one online classes
+   * Use fun games, songs, and poems as teaching aids to encourage children to enjoy learning English
 
 _**Ameson Year in China, English teacher (Pan’an Experimental Primary School)**_                                              
 **Jinhua, China**    
 February-June 2017
-  * Taught English to Chinese students in third to sixth grade, with a focus on improving oral English
+  * Improved oral English of Chinese students in third to sixth grade 
   * Gave biweekly mini-lectures on American culture to the entire school
   * Organized and enforced English-only time for Chinese colleagues 
   * Regularly taught Chinese colleagues colloquial English in an informal setting
@@ -45,7 +45,7 @@ ________________________________________________________________________________
 **SKILLS**
   * Language: Conversational fluency in both Mandarin and Bangla
   * Computer: Comfortable with Microsoft Office and Google Docs, Beginner in Python and Markdown
-  * Social media: Facebook, Google plus, Tumblr, Wordpress
+  * Social media: User of Facebook, Google plus, Tumblr, Wordpress
 _______________________________________________________________________________________
 **HONORS & AWARDS**  
 
@@ -58,9 +58,4 @@ _**SPRING 2016**_
 **_Fall 2012 - SPRING 2016_**    
   * **Dean’s List**
 _______________________________________________________________________________________
-**ACTIVITIES**
 
-_**Simmons College Global Ambassador**_    							                                                                         
-**Boston, MA**   
-Fall 2015
-  * Promoted study abroad by holding office hours where I discussed my experience abroad
